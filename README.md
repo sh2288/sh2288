@@ -1,4 +1,4 @@
-![](4k-anime-girls-galgame-720p.jpg)
+![](img/4k-anime-girls-galgame-720p_结果.jpg)
 ## 👋主打项目 🚀[文字游戏_翻译君](https://github.com/sh2288/transer)🚀
 
 <!--
