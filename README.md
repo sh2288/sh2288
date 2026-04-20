@@ -1,4 +1,5 @@
 ![](img/4k-anime-girls-galgame-720p_结果.jpg)
+<!--
 **sh2288/sh2288** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
@@ -11,4 +12,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
-
+-->
