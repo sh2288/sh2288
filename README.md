@@ -1,4 +1,5 @@
 ![](img/4k-anime-girls-galgame-720p_结果.jpg)
+![](https://www.2288666.xyz/wp-content/uploads/2026/08/%E5%B0%8F%E7%94%98%E5%8D%9A%E5%AE%A2-nopic3.png)[小甘博客-各种折腾](https://www.2288666.xyz/)
 <!--
 **sh2288/sh2288** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
